@@ -4,3 +4,5 @@ Welcome!
 ANKIT KUMAR YADAV
 ankityadav1852@gmail.com
 Soumili @sequin_lush
+KHUSHI NARANG
+khushinarang1920@gmail.com
